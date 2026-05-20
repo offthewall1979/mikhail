@@ -1,16 +1,15 @@
 
-<img width="3000" height="250" alt="image" src="https://github.com/user-attachments/assets/2c43f0d6-49e5-4d70-aa7e-5be71d3944b3" />
+<img width="640" height="55" alt="image" src="https://github.com/user-attachments/assets/60bd021f-7516-44ee-a31d-8ef56e9a3c4b" />
+
 
 <img width="600" height="200" alt="image" src="https://github.com/user-attachments/assets/5f4ba06c-d397-4d01-94f4-f965a8ffc8df" />
 
-                            BAD , HIStory , OFF THE WALL ❤️🖤
 
-                        i play ponytown every few months lol .. 
-
+ bad . off the wall . history 
  
  **dont copy my skins or smth plz**
 
 i usually jst wander around the map so yeah   (─‿‿─)
 
-<img width="588" height="50" alt="image" src="https://github.com/user-attachments/assets/80f1a1d3-5ec6-4ae5-8bfe-8539aae557d6" />
+<img width="640" height="55" alt="image" src="https://github.com/user-attachments/assets/60bd021f-7516-44ee-a31d-8ef56e9a3c4b" />
 <img width="540" height="304" alt="image" src="https://github.com/user-attachments/assets/66aac930-23c1-4f41-b632-21349d88fc55" />
